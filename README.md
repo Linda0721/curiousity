@@ -1,2 +1,0 @@
-# curiousity
-school club
